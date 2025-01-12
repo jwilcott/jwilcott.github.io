@@ -1,1 +1,0 @@
-# jwilcott.github.io
